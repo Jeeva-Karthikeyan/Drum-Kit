@@ -1,1 +1,2 @@
-https://github.com/Jeeva-Karthikeyan/Drum-Kit/assets/125634373/c1c52625-48da-45e8-9556-5220b77f168b
+
+![Drum](https://github.com/Jeeva-Karthikeyan/Drum-Kit/assets/125634373/7cb62c2e-1373-47aa-9022-c50f2c6d77a4)
